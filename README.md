@@ -4,7 +4,8 @@
 
 
 
-<img width="686" height="383" alt="IMG_4334" src="https://github.com/user-attachments/assets/58fe73c9-c65e-4281-b4c7-a5fddc081654" />
+<img width="735" height="413" alt="Untitled367_20260426162627" src="https://github.com/user-attachments/assets/1b398c7a-2188-49fc-98e1-57ab3862763a" />
+
 
 https://discord.gg/NqtJhZgxR<img width="20" height="20" alt="IMG_4446" src="https://github.com/user-attachments/assets/82b5fc7f-b94f-47cb-94fa-1f84199847fa" />
 
