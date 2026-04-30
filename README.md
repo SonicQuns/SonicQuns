@@ -8,6 +8,8 @@
 
 
 
-[discord](https://discord.gg/NqtJhZgxR%3Cimg) width="20" height="20" alt="IMG_4446" src="https://github.com/user-attachments/assets/82b5fc7f-b94f-47cb-94fa-1f84199847fa" />
+[discord](https://discord.gg/NqtJhZgxR%3Cimg) width="20" height="20" alt="IMG_4446"
+
+
 <img width=540 height=12 src="https://github.com/user-attachments/assets/0611cc28-b481-44a7-98dc-9ff53cb5c627"/>
 
