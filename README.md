@@ -1,17 +1,1 @@
- <p align="center">
-   
-<img width=540 height=12 src="https://github.com/user-attachments/assets/0611cc28-b481-44a7-98dc-9ff53cb5c627"/>
-
-
-
-<img width="735" height="275" alt="IMG_4468" src="https://github.com/user-attachments/assets/eecdf585-84b6-4e41-81f3-4d87a30e86ad" />
-
-
-
-
-[discord](https://discord.gg/NqtJhZgxR%3Cimg) <img width="20" height="20" alt="IMG_4453" src="https://github.com/user-attachments/assets/55d61f19-fad8-4e04-8752-250067fb0eec" />
-
-
-
-<img width=540 height=12 src="https://github.com/user-attachments/assets/0611cc28-b481-44a7-98dc-9ff53cb5c627"/>
 
